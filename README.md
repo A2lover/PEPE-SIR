@@ -7,7 +7,7 @@
 <div align="center">
 <img src="WvvWz6Ql-7521260804.jpg" alt="Pepe" width="170" />
 
-## A2 LOVER 🌝💝
+## A2 LOVER 🍭
 
 </div>
 
