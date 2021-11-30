@@ -5,7 +5,7 @@
 
 
 <div align="center">
-<img src="xeon.jpg" alt="Pepe" width="170" />
+<img src="WvvWz6Ql-7521260804.jpg" alt="Pepe" width="170" />
 
 ## A2 LOVER 🌝💝
 
@@ -116,15 +116,14 @@ scan qr code within 15seconds
 ## Connect With Me
 My Personal Chat👇
 <p align="center">
- <a href="https://wa.me/+917736622139"><img alt="WhatsApp Personal Chat" src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=black"/></a>
+ <a href="https://wa.me/+919526128516"><img alt="WhatsApp Personal Chat" src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=black"/></a>
 </p>
 
 My Whatsapp Group👇
 <p align="center">
- <a href="https://chat.whatsapp.com/ESkhpL7DdlE9AcaUs2b7g1"><img alt="WhatsApp Group" src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=black"/></a>
+ <a href="https://chat.whatsapp.com/J4DrqlOQYr05LnEfYCoovI"><img alt="WhatsApp Group" src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=black"/></a>
 </p>
 
-* [`My Youtube Channel`](https://youtube.com/channel/UCVJ9029PQ-gJBtFQZZ3AJuA)
 
 ### ⚠ Warning ⚠
 
